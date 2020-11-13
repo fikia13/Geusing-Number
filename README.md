@@ -1,0 +1,2 @@
+# Geusing Number
+ Nebak angka 
